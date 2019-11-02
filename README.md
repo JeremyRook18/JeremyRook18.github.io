@@ -23,7 +23,7 @@ The last couple of years have shown have shown me there are people out there who
 
 
 hello
-[](whatscool)
+[try this](whatscool)
 here
 
 ## Whats Cool:
