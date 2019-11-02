@@ -20,8 +20,7 @@ Why now?
 So I've written and re-written this a bunch of times. I can't get it right, so heres a best try:
 
 The last couple of years have shown have shown me there are people out there who are unbothered by diversity, even think its a good thing. I've always always always thought that being d
-
-
+[](whatscool)
 ##Whats Cool:
 > Getting it wrong!
 
