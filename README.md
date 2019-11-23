@@ -9,15 +9,30 @@ Rook as in Bodhi Rook, the defected Imperial Pilot in Rogue One.
 
 Pronouns: He/Him or They/Them - either is awesome :) 
 
+## Let me introduce myself
+
+My name is Jeremy, and I am a transgender man. 
+
+
+
 
 ## Q&A
+How long has this been going on?
 
-But How?
+Forever. I have always and always felt this way. I have just hidden it from view and pushed it so far down for fear of rejection nd humiliation. 
+
+Wanting to be a by is my earliest memory. 
+
+But you learn to live with your circumstances. I grew up thinking 
 
 
 Why now?
  
 So I've written and re-written this a bunch of times. I can't get it right, so heres a best try:
+
+The last couple of years 
+
+
 
 The last couple of years have shown have shown me there are people out there who are unbothered by diversity, even think its a good thing. I've always always always thought that being d
 
