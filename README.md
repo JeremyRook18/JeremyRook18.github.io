@@ -41,6 +41,9 @@ hello
 [try this](whatscool)
 here
 
+[try this, new branch](JeremyRook18.github.io/blob/Whatscool/whatscool.html)
+
+
 ## Whats Cool:
 > Getting it wrong!
 
