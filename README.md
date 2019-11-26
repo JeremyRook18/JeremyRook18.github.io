@@ -41,6 +41,11 @@ hello
 [try this](whatscool)
 here
 
+
+new repo
+
+[new repo](whatscoolithink/hithere.html)
+
 [try this, new branch, readme](whatscool.html)
 
 
