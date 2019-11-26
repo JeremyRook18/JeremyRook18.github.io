@@ -41,7 +41,7 @@ hello
 [try this](whatscool)
 here
 
-[try this, new branch](Whatscool/whatscool.html)
+[try this, new branch, readme](whatscool.html)
 
 
 ## Whats Cool:
